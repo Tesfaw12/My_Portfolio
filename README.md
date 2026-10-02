@@ -200,7 +200,7 @@ MIT License - Feel free to use this for your own portfolio!
 
 ## Contact
 
-Tesfaw Amare - tesfaw.amare@example.com
+Tesfaw Amare - tesfawamare19125@gmail.com
 
 ## Credits
 
